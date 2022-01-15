@@ -1,2 +1,2 @@
 # нужный файл
-[нужный файл(скачай)](https://discord.gg/fD2QuF5j?event=931826799015514142)
+[нужный файл(скачай)](https://disk.yandex.ru/d/NA80rkYA8eJ5bw)
